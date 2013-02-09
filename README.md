@@ -1,0 +1,1 @@
+Because I'm good enough, I'm smart enough, and gosh darn-it, people like me.
